@@ -5,6 +5,7 @@
 no strawpage or ata because idk how to make one so just follow me 
 
 °•× About Me ! ×• :
+
 No age reveal ok.?
 Alienstageholic 🙏 and Tillholic 🤯
 × Games i play × : 
