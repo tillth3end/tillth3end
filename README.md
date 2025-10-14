@@ -10,7 +10,10 @@ no strawpage or ata because idk how to make one so just follow me ok...?
 
 idk a lot of stuff + dont play much games + not in a lot of fandoms
 
-No age reveal ok.?
+I like drawing. ok? i hate school ok? 
+liking drawing doesnt mean im good at it btw 💔😔 my drawings can be innocent! or.. maybe some.. other stuff ok? 
+
+No age reveal ok...? ok..?? (unless you ask as a friend thats kinda maybe a bit close??) 
 
 Alienstageholic 🙏 and Tillholic 🤯
 
