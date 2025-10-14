@@ -1,4 +1,4 @@
-', °• ok i finally found out how to make a readme 🙏
+ok i finally found out how to make a readme 🙏
 
 -'= call me Rye.. ok...? 
 
