@@ -2,7 +2,7 @@ ok i finally found out how to make a readme 🙏
 
 -'= call me Rye.. ok...? 
 
-=° he/they ! 
+=° i rather he/they ! 
 
 no strawpage or ata because idk how to make one so just follow me ok...? 
 
