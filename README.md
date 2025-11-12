@@ -1,4 +1,4 @@
-ok i finally found out how to make a readme 🙏
+long ahh readme ok... dont need to read anything if ur not interested 😓
 
 -'= call me Rye.. ok...? 
 
@@ -24,11 +24,8 @@ Genshin Impact - Project Sekai - Cookie Run Kingdom - Roblox ig...i dont play it
 × in ponytown :
 
 Im chronically online 😔 2000+ playtime
-I usually sit at the Alien Stage area.. sometimes hoyoverse area.. then docks.. yes 16% chance of me being at other random places
+I usually sit at the Alien Stage area.. sometimes hoyoverse area.. then docks..16% chance of me being at other random places
 
 i host 2 types of things for docks which is fsr (fashion roulette) and fts (find the skin) 
 
-things i join in docks which i can always be seen in  fsr - fts - oc makers maybe - mafia - yes
-5% chance that i will be seen in other stuff
-
-also DO NOT COVER ME. WHEN IM SITTING. pmo.
+things i join in docks which i can always be seen in  fsr - fts - oc makers maybe - mafia - 5% chance that i will be seen in other uh stuff
