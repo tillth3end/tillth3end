@@ -4,8 +4,6 @@ long ahh readme ok... dont need to read anything if ur not interested 😓
 
 =° i rather he/they ! 
 
-wip strawpage, but i will not put link yet 
-
 °•× About Me ! ×•° :
 
 idk a lot of stuff + dont play much games + not in a lot of fandoms
@@ -29,3 +27,6 @@ I usually sit at the Alien Stage area.. sometimes hoyoverse area.. then docks..1
 i host 2 types of things for docks which is fsr (fashion roulette) and fts (find the skin) 
 
 things i join in docks which i can always be seen in  fsr - fts - oc makers maybe - mafia - 5% chance that i will be seen in other uh stuff
+
+
+Draw on my strawpage PLSSSS 
