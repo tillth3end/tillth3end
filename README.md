@@ -4,7 +4,7 @@ long ahh readme ok... dont need to read anything if ur not interested 😓
 
 =° i rather he/they ! 
 
-no strawpage or ata because idk how to make one so just follow me ok...? 
+wip strawpage, but i will not put link yet 
 
 °•× About Me ! ×•° :
 
