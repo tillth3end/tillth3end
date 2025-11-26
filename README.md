@@ -1,32 +1,24 @@
-long ahh readme ok... dont need to read anything if ur not interested 😓
-
 -'= call me Rye.. ok...? 
 
 =° i rather he/they ! 
 
-°•× About Me ! ×•° :
+° About Me ! :
 
-idk a lot of stuff + dont play much games + not in a lot of fandoms
+idk a lot of fandoms+ dont play much games + not in a lot of fandoms
+
+im a loser aint i ✌😂
 
 I like drawing. ok? i hate school ok? 
-liking drawing doesnt mean im good at it btw 💔😔 my drawings can be innocent! or.. maybe some.. other stuff ok? 
+liking drawing doesnt mean im good at it btw .  my drawings can be innocent! or.. maybe some.. other stuff .. 
 
-No age reveal ok...? ok..?? (unless you ask as a friend thats kinda maybe a bit close??) 
+No age reveal ok. ..? 
 
-Alienstageholic 🙏 and Tillholic 🤯
+Alienstageholic ! and Tillholic ! a phone addict too ok
 
-× Games i play × : 
+I LOVE ivantill, but dont get the wrong impression of me please. 
+
+× Games i play : 
 
 Genshin Impact - Project Sekai - Cookie Run Kingdom - Roblox ig...i dont play it often - ponytown - and um idk anymore i dont play much
-
-× in ponytown :
-
-Im chronically online 😔 2000+ playtime
-I usually sit at the Alien Stage area.. sometimes hoyoverse area.. then docks..16% chance of me being at other random places
-
-i host 2 types of things for docks which is fsr (fashion roulette) and fts (find the skin) 
-
-things i join in docks which i can always be seen in  fsr - fts - oc makers maybe - mafia - 5% chance that i will be seen in other uh stuff
-
 
 Draw on my strawpage PLSSSS 
