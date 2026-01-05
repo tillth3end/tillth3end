@@ -15,7 +15,7 @@ liking drawing doesnt mean im good at it btw .  my drawings can be innocent! or.
 
 No age reveal ok. ..? 
 
-Alienstageholic ! and Tillholic ! a phone addict too ok
+ Tillholic ! a phone addict too ok
 
 I LOVE ivantill, but dont get the wrong impression of me please. 
 
