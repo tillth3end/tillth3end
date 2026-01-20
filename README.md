@@ -3,4 +3,4 @@
 call me rye
 
 all info in my strawpage !!! 
-draw in so pls... asking me stuff is also fine
+draw in strawlage pls... asking me stuff is also fine
