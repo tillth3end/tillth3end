@@ -2,5 +2,4 @@
 
 call me rye
 
-all info in my strawpage !!! 
-draw in strawlage pls... asking me stuff is also fine
+draw on my strawpage pls!! 
