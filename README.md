@@ -2,5 +2,11 @@
 
 
 
-嗨嗨！！
-check out my strawpage for info about me!
+٩(ˊᗜˋ*)و ♡ 嗨嗨！！
+
+⋆˚࿔ call me rye !!
+
+⋆˚꩜｡ check out my strawpage to know more about me!!
+
+he/she/they ˚. ᵎᵎ
+
