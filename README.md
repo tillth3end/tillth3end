@@ -1,5 +1,5 @@
-![image alt](<img width="735" height="485" alt="image" src="https://github.com/user-attachments/assets/4bb20af2-3a70-4645-8b2f-eacdc6bf2e3d" />
-)
+![image alt](<img width="735" height="485" alt="image" src="https://github.com/user-attachments/assets/0fc7603b-fc7f-405c-9e81-a46bd75e0148" />)
+
 
 嗨嗨！！
 check out my strawpage for info about me!
