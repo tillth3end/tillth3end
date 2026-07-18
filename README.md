@@ -1,4 +1,5 @@
-![image alt](https://github.com/tillth3end/tillth3end/blob/c2e8d3b8a47340c5175f5ff5004bdcbf537a6049/c3d80aad-a18b-48d2-adf9-8767db642144_20260103_163626_0000.png)
+![image alt](<img width="735" height="485" alt="image" src="https://github.com/user-attachments/assets/4bb20af2-3a70-4645-8b2f-eacdc6bf2e3d" />
+)
 
 嗨嗨！！
 check out my strawpage for info about me!
