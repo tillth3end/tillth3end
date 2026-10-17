@@ -10,6 +10,7 @@
 
 he/she/they ˚. ᵎᵎ
 
-- [new straw wip!](https://cloudexe.straw.page)
+- ╰┈➤ [new straw wip!](https://cloudexe.straw.page)  (˶°ㅁ°) !!
 
+not done yet! but you can go check it out!
 
